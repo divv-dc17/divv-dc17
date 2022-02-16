@@ -1,1 +1,1 @@
-Ignore me. Just like anyone else.
+less like a developer, more like a student.
